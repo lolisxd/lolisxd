@@ -1,4 +1,2 @@
 # lolisxd
 lolisxd
-
-uwu
